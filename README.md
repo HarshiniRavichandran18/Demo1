@@ -12,8 +12,8 @@ And sir please help me to easily learn, Guide me... as i don't know anything abo
 THANK YOU!!
 
 My Father name is RAVICHANDRAN K , He is working as an incharge in SHARADHA PRIVATE LIMITED
-My Mother name is MALATHI K , She is a TAMIL TEACHER HAD DONE MA,B.ED  , Working in NATIONAL MATRICULATION HIGHER SECONDARY SCHOOL 
-I'm proud of my parents , My mom had receaved 20 plus medels 
+My Mother name is MALATHI K , She is a TAMIL TEACHER had done MA,B.ED in TAMIL , Working in NATIONAL MATRICULATION HIGHER SECONDARY SCHOOL 
+I'm proud of my parents , My mom had receaved 20 plus medels IN HER 10 YEARS OF EXPERIENCE AS BEST TAMIL TEACHER
 And they were much eager in social helping and organising many programme
 And I Have pet name ROCKY [DOG] In my home I Like him very much
 
@@ -21,3 +21,8 @@ My inspiration is SIR V.IRAI ANBU IAS for his thoughts and his inspirative speec
 As my mom is a Tamil teacher i used to learn books with her, she too like his books and by her only i was inspired on him
 And I'm fond on HARDIK PANDIYA AND ROHIT SHARMA - CRICKETERS 
 Not only for theirs playing skills but also for their courage and empowerment 
+
+So the thing i want to say to you was... i have already mentioned up 
+You was best... And I'm Not saying this to put like something... ice for teachers  !!
+Just saying what i felt...
+The only thing is that for me please help me to get goog knowledge and marks sir...
