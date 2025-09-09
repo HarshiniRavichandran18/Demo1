@@ -12,7 +12,12 @@ And sir please help me to easily learn, Guide me... as i don't know anything abo
 THANK YOU!!
 
 My Father name is RAVICHANDRAN K , He is working as an incharge in SHARADHA PRIVATE LIMITED
-My Mother name is MALATHI K , She is a TAMIL TEACHER , Working in NATIONAL MATRICULATION HIGHER SECONDARY SCHOOL 
+My Mother name is MALATHI K , She is a TAMIL TEACHER HAD DONE MA,B.ED  , Working in NATIONAL MATRICULATION HIGHER SECONDARY SCHOOL 
 I'm proud of my parents , My mom had receaved 20 plus medels 
 And they were much eager in social helping and organising many programme
 And I Have pet name ROCKY [DOG] In my home I Like him very much
+
+My inspiration is SIR V.IRAI ANBU IAS for his thoughts and his inspirative speech and by his books
+As my mom is a Tamil teacher i used to learn books with her, she too like his books and by her only i was inspired on him
+And I'm fond on HARDIK PANDIYA AND ROHIT SHARMA - CRICKETERS 
+Not only for theirs playing skills but also for their courage and empowerment 
